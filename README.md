@@ -1,13 +1,36 @@
 ​🌪️ DHUL UDAN KOSH (धूल उड़ान कोष)
-​THE BEYOND-LOGIC ARCHIVE
-​[WARNING: PROFESSIONALS STAY AWAY]
-​"This is for those who dare to kick up the dust. If you are a 'Professional' who only understands the language of careers, salaries, and corporate rules, please stop right here—this place is NOT for you."
-​This is धूल उड़ान कोष (DHUL UDAN KOSH)—an unsellable gallery of existence. We are here to deconstruct the world's finest software and push them to a level of madness that hasn't been coded yet. We don't want coders; we want 'Digital Rebels' who can think beyond the screen.
-​⚡ THE ULTIMATE CHALLENGE:
-​Most of you call yourselves 'Geniuses' or 'Architects' while simply playing within the sandbox others built for you. You are comfortable, you are safe, and you are predictable.
-​I challenge your very existence: Do you actually have the spine to build something that cannot be bought? Can your intellect survive in a place where there are no manuals, no salaries, and no safety nets?
-​If your brilliance depends on a corporate paycheck or a 'Job Title', you are not a genius—you are just a highly-paid tool. Step into the DHUL UDAN KOSH storm only if you have the guts to prove that your mind is truly sovereign.
-​🔥 SHOW THE WORLD WHAT WE CAN DO:
-​If you believe in your own power, if you have the fire in your soul, then step forward. Let us unite our madness and show this world what we are truly capable of. We will build a force so advanced that history will be rewritten in the dust we leave behind.
-​Can you handle the chaos, or is your 'talent' just another product on the shelf?
-​Step in. Or clear the way for those who will.
+
+​🔥 THE SOVEREIGN ARCHIVE OF DIGITAL EVOLUTION 🔥
+
+​⚠️ EXTREME DANGER: ENTER AT YOUR OWN RISK ⚠️
+
+​🛑 STOP! If you are a 'Professional' seeking a career, turn back. If you fear the unknown, run away. This is not a playground. This is a STORM. 🌪️
+
+​🛡️ THE SOVEREIGN ASSET (संप्रभु अधिकार) 🛡️
+
+​[UNSELLABLE | UNSTOPPABLE | UNBENDING]
+
+🔥 This is DHUL UDAN KOSH. This is not a product for your markets. It is a Sovereign Force. Its value is beyond your currency. We don't sell; we dominate. Every line of code here is our property, and we dictate the future. No betrayal, no compromise—only absolute power. ⚡
+
+​☢️ ARCHITECTURAL RECONSTRUCTION (मूल ढांचा परिवर्तन) ☢️
+
+​"We don't just fix tools. We rip out the soul and rewrite the DNA." 🧬
+
+⚠️ WARNING: The software here has been deconstructed to its core. We have dismantled the original structures and rebuilt a new, superior reality. If you cannot handle the intensity of this transformation, you will perish in the dust. 🌪️🔥
+
+​⚖️ STRICT LEGAL COMPLIANCE ⚖️
+
+​[ETHICAL REBELLION]
+⚠️ NOTICE: Even in our madness, we are disciplined. We follow every International Cyber Law. Our fire is for creation, not destruction. We respect the law so we can eventually transcend it. 🏛️
+
+​⚡ THE ULTIMATE CHALLENGE ⚡
+
+​WARNING TO ALL 'GENIUSES':
+
+Do you have the guts to watch your logic burn and be reborn in the DHUL UDAN KOSH?
+​💀 THE WEAK: Will be blinded by the dust.
+
+​🌪️ THE BRAVE: Will witness the birth of the impossible.
+
+​🔥 "WE ARE NOT HERE TO FIT IN. WE ARE HERE TO BLOW THE DUST OFF THE WORLD." 🔥
+​ENTER THE KOSH. OR GET OUT OF THE WAY. 🌪️🚀
